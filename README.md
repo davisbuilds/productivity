@@ -31,8 +31,9 @@ I offer my sincere apologies here. I claim neither credit nor the mental ability
 21. "Time is the currency of life." - Daniel Kahneman
 22. "The biggest opportunity cost in our life is time, so best to make the most of it." - Jamin Ball
 23. "For anyone trying to discern what to do with their life: pay attention to what you pay attention to." - Amy Krouse Rosenthal
-24. "What gets measured, gets managed." - Peter Drucker
-25. "Champions behave like champions before they are champions." - Bill Walsh
-26. “Management is doing things right; leadership is doing the right things.” - Peter Drucker
-27. "All the returns in life, whether in wealth, relationships, or knowledge, come from compound interest." - Naval Ravikant
-28. "In the best establishments, promises are always kept, whatever it may cost in agony and overtime." - David Ogilvy
+24. "History doesn’t repeat itself; human nature does." - David Senra
+25. "What gets measured, gets managed." - Peter Drucker
+26. "Champions behave like champions before they are champions." - Bill Walsh
+27. “Management is doing things right; leadership is doing the right things.” - Peter Drucker
+28. "All the returns in life, whether in wealth, relationships, or knowledge, come from compound interest." - Naval Ravikant
+29. "In the best establishments, promises are always kept, whatever it may cost in agony and overtime." - David Ogilvy
