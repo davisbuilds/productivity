@@ -25,7 +25,7 @@ I offer my sincere apologies here. I claim neither credit nor the mental ability
 15. “Never, ever, think about something else when you should be thinking about the power of incentives.” - Charlie Munger
 16. "Do not cling to a mistake just because you spent a lot of time making it." - Kevin Kelly
 17. "Everyone has a plan until they get punched in the mouth." - Mike Tyson
-18. "Less impressed, more involved." - Matthew McConaughhey
+18. "Less impressed, more involved..." - Matthew McConaughey
 19. "Break one bad habit every six months. Pick up one good habit every year." - Naval Ravikant
 20. "Time is the greatest filter." - David Senra
 21. "Time is the currency of life." - Daniel Kahneman
